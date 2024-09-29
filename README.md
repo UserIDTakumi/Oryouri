@@ -1,2 +1,0 @@
-# Oryouri
-Dashigohan
